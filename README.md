@@ -30,7 +30,7 @@
   
 <div align="center">
   
-˗ˏˋ[𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝒈𝐞](https://mattbellamys.straw.page/)ˎˊ˗___.˚✮ [𝐑𝐞𝐧𝐭𝐫𝐲](https://rentry.co/jessep1nkman) ✮˚.‎___₊‧꒰[𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬](https://pronouns.cc/@Matt_bellamy)꒱‧₊___₊˚♪ [𝐋𝐚𝐬𝐭 𝐟𝐦](https://www.last.fm/user/alanbirdy) 𝄞₊˚
+˗ˏˋ[𝐓𝐢𝐤𝐓𝐨𝐤](https://www.tiktok.com/@jessebpinkmans)ˎˊ˗___.˚✮ [𝐑𝐞𝐧𝐭𝐫𝐲](https://rentry.co/kaka-yama) ✮˚.‎___₊‧꒰[𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬](https://pronouns.cc/@Matt_bellamy)꒱‧₊___₊˚♪ [𝐋𝐚𝐬𝐭 𝐟𝐦](https://www.last.fm/user/alanbirdy) 𝄞₊˚
  </div>
 
 
